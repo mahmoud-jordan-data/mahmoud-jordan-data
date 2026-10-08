@@ -22,7 +22,7 @@ Projects will be added here as I complete them. Stay tuned.
 
 ## 📫 Let's connect
 
-- LinkedIn: [Mahmoud Abd Esabour](www.linkedin.com/in/mahmoud-abd-esabour-)
+- LinkedIn:www.linkedin.com/in/mahmoud-abd-esabour-
 - Email: mahmoudjordon.mj@gmail.com
 
 <!--
