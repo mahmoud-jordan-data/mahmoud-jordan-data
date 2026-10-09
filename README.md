@@ -2,7 +2,7 @@
 
 **Brand & Sales Strategist building data skills** | Cairo, Egypt
 
-I spent 15+ years in brand management and sales across the beauty industry, leading brand operations across Egypt and managing international beauty brands. Today I'm adding data skills to that business experience through the **Digital Egypt Builders Initiative (DEBI)** scholarship, so I can turn raw numbers into decisions that actually grow a brand.
+I spent 15+ years in brand management and sales across the beauty industry, leading brand operations across Egypt and managing international beauty brands. Today I'm adding data skills to that business experience through the **Digital Egypt Pioneers Initiative (DEBI)** scholarship, so I can turn raw numbers into decisions that actually grow a brand.
 
 ## 🧰 What I'm learning and using
 
