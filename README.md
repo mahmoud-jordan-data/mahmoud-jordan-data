@@ -1,4 +1,4 @@
-# Hi, I'm Mahmoud Abd Elsabour 👋
+# Hi, I'm Mahmoud Sweilem 👋
 
 **Brand & Sales Strategist building data skills** | Cairo, Egypt
 
